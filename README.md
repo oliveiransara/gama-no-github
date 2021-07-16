@@ -1,0 +1,1 @@
+Muito bom onde esse curso me fez chegar até o momento. Go go!
